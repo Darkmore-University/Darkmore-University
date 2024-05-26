@@ -1,1 +1,1 @@
-# Darkmore-University
+# Darkmore University
